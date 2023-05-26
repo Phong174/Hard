@@ -1,0 +1,2 @@
+# Hard
+Strong
